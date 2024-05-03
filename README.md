@@ -1,4 +1,4 @@
-
+A music approach to time–frequency conversion in hormones: a novel methodology for auditory pattern using NMR spectroscopy
 
 
 Link to the article:
